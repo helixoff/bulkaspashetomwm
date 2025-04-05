@@ -1,2 +1,2 @@
-# bulkaspashetomwm
-bulkaspashetomwm - roflo wm for linux унитаз
+# Bulochka S Pashtetom
+||УНИТАЗ||
